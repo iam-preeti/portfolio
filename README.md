@@ -1,1 +1,1 @@
-# Ravikant's Online Resume
+# Preeti srivastava's Online Resume
